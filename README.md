@@ -1,2 +1,9 @@
-# Swapswap-Sans
-do you wanna have a bad time? 'cause if you visit this page... you are REALLY not going to like what happens next.
+# Credits
+
+Music used: https://soundcloud.com/theblandey/swapswap-tanatovania-original
+
+Bad Time Simulator by Jcw87
+
+Swapswap by Oran
+
+Undertale by Toby Fox
